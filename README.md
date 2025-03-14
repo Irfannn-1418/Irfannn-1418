@@ -1,4 +1,4 @@
-## Hi there 👋, konichiwa watashi miashhhh sennnn
+## Hi there 👋, konichiwa ich bin matpan
 
 <!--
 **Irfannn-1418/Irfannn-1418** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
